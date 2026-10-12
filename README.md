@@ -1,1 +1,1 @@
-# wine-valley
+# wine-valley-cottage
